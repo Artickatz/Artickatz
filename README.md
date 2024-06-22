@@ -1,10 +1,7 @@
 ### About Me 
 
-* University Student studying cybersecurity
-* 
-* 
-*
-*
+University Student studying cybersecurity
+
 
 <h2 align="center">📊 Gɪᴛʜᴜʙ Sᴛᴀᴛs 📊</h2>
 
